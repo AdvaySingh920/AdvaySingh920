@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @AdvaySingh920
-- 👀 I’m interested in coding 
-- 🌱 I’m currently learning AI development 
+- 👀 I’m interested in coding and creating somthing new.
+- 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on Nothing 
-- 📫 To reach me at my email- advaysingh12345@outlook.com
+- 📫 To reach me at my email- advaysingh2012@gmail.com
 - 😄 Pronouns: Nothing 
 - ⚡ Fun fact: Nothing 
 
