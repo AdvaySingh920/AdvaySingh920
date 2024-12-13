@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and creating somthing new.
 - 🌱 I’m currently learning web development 
 - 💞️ I’m looking to collaborate on Nothing 
-- 📫 To reach me at my email- advaysingh2012@gmail.com
+- 📫 To reach me from my email- advaysingh2012@gmail.com
 - 😄 Pronouns: Nothing 
 - ⚡ Fun fact: Nothing 
 
